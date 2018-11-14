@@ -4,10 +4,10 @@
 Andiswa såg på at gutane spela fotball. Ho ville så gjerne vera med! Ho spurde trenaren om ho kunne få trena saman med dei.
 
 ##
-Trenaren sette hendene i sida. "På skulen her får berre gutar spille fotball", sa han.
+Trenaren sette hendene i sida. "På skulen her får berre gutar spela fotball", sa han.
 
 ##
-Gutane sa at ho skulle gå og spela nettball. Dei sa at nettball er for jenter og fotball er for gutar. Andiswa vart sinna.
+Gutane sa at ho skulle gå og spela nettball. Dei sa at nettball er for jenter og fotball er for gutar. Andiswa vart sint.
 
 ##
 Dagen etter var det ein stor fotballkamp på skulen. Trenaren var bekymra fordi den beste spelaren på laget var sjuk og kunne ikkje spela.

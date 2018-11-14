@@ -1,4 +1,4 @@
-# Skoletøjer
+# Skoletøj
 
 ##
 Denne kjole er lang.
@@ -10,7 +10,7 @@ Denne trøje er stor.
 Denne taske er stor.
 
 ##
-Dette bælte er...
+Dette bælte er ...
 
 ##
 Denne hat er lille.
@@ -27,6 +27,6 @@ Men disse sko er nye.
 ##
 * License: [CC-BY-NC]
 * Text: Clare Verbeek, Thembani Dladla, Zanele Buthelezi
-* Illustration: Mlungisi Dlamini, Anonymous
-* Translation: Espen Stranger-Johannessen
+* Illustration: Mlungisi Dlamini
+* Translation: Kim Sandvad West
 * Language: da

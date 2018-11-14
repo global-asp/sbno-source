@@ -7,13 +7,13 @@ Høne og Tusenbein var vener. Men dei likte alltid å konkurrera. Ein dag spelte
 Dei drog til fotballbanen og starta kampen. Høne var rask, men Tusenbein var raskare. Høne sparka langt, men Tusenbein sparka lengre. Høne vart surare og surare.
 
 ##
-De bestemte seg for å ha ein straffekonkurranse. Først var Tusenbein keeper. Høne skåra berre eitt mål. Så var det Høne sin tur til å forsvara målet.
+Dei bestemte seg for å ha ein straffekonkurranse. Først var Tusenbein keeper. Høne skåra berre eitt mål. Så var det Høne sin tur til å forsvara målet.
 
 ##
 Tusenbein sparka ballen og skåra. Tusenbein dribla ballen og skåra. Tusenbein heada ballen og skåra. Fem mål skåra Tusenbein.
 
 ##
-Høne vart sint fordi ho tapte. Ho var ein veldig dårleg tapar. Tusenbein byrja å le av venen som laga så mykje bråk.
+Høne vart sint fordi ho tapte. Ho var ein veldig dårleg tapar. Tusenbein byrja å le av venen som laga så mykje oppstyr.
 
 ##
 Høne var så sint at ho opna nebbet og slukte Tusenbein.

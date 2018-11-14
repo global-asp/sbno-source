@@ -1,7 +1,7 @@
 # Den dagen jeg dro hjemmefra for å dra til byen
 
 ##
-Den lille busstasjonen i landsbyen min var travel og stappfull av busser. På bakken var det flere ting som skulle lastes. Medhjelpere ropte navnene på stedene dit hvor bussene gikk.
+Den lille busstasjonen i landsbyen min var travel og stappfull av busser. På bakken var det flere ting som skulle lastes. Medhjelpere ropte navnene på stedene dit bussene gikk.
 
 ##
 "Byen! Byen! Vestover!" hørte jeg en medhjelper rope. Det var bussen jeg måtte ta.
@@ -22,7 +22,7 @@ Jeg så ut av bussen og innså at jeg var i ferd med å forlate landsbyen min, s
 Lastingen av bagasjen var ferdig og alle passasjerene hadde satt seg. Gateselgere presset seg fortsatt inn i bussen for å selge varene sine til passasjerene. Alle ropte navnene på det de hadde til salgs. Jeg syntes ordene hørtes merkelige ut.
 
 ##
-Noen få passasjerer kjøpte noe å drikke, andre kjøpte små snacks som de begynte å tygge på. De som ikke hadde noe penger, som jeg, bare så på.
+Noen få passasjerer kjøpte noe å drikke, andre kjøpte små snacks som de begynte å tygge på. De som ikke hadde noen penger, som jeg, bare så på.
 
 ##
 Disse aktivitetene ble avbrutt av tutingen til bussen, et tegn på at vi var klare til å dra. En medhjelper ropte at gateselgerne måtte komme seg ut.
@@ -43,7 +43,7 @@ Men tankene mine vandret hjem. Kommer moren min til å bli trygg? Kommer kaninen
 På veien lærte jeg meg utenat navnet på stedet i den store byen der onkelen min bodde. Jeg mumlet fortsatt da jeg falt i søvn.
 
 ##
-Ni timer senere våknet jeg med høylytt banking og roping etter passasjerer som skulle tilbake til landsbyen min. Jeg grep fatt i den lille veska mi og hoppet ut av bussen.
+Ni timer senere våknet jeg av høylytt banking og roping etter passasjerer som skulle tilbake til landsbyen min. Jeg grep fatt i den lille veska mi og hoppet ut av bussen.
 
 ##
 Bussen som skulle tilbake ble fylt opp fort. Det viktigste for meg nå var å begynne å lete etter huset til onkelen min.

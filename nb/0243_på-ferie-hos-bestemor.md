@@ -4,7 +4,7 @@
 Odongo og Apiyo bodde i byen med faren sin. De så fram til ferien. Ikke bare fordi skolen var slutt, men fordi de skulle besøke bestemoren sin. Hun bodde i en fiskerlandsby nær en stor innsjø.
 
 ##
-Odongo og Apiyo var begeistret fordi de var på tide å besøke bestemor igjen. Kvelden før pakket de veskene sine og gjorde seg klare for den lange reisen til landsbyen hennes. De fikk ikke sove og de snakket hele natten om ferien.
+Odongo og Apiyo var begeistret fordi det var på tide å besøke bestemor igjen. Kvelden før pakket de veskene sine og gjorde seg klare for den lange reisen til landsbyen hennes. De fikk ikke sove og de snakket hele natten om ferien.
 
 ##
 Tidlig neste morgen dro de til landsbyen i bilen til faren sin. De kjørte forbi fjell, ville dyr og teplantasjer. De telte biler og sang sanger.
@@ -28,7 +28,7 @@ Så gikk Odongo og Apiyo ut. De jagde sommerfugler og fugler.
 De klatret i trær og plasket i vannet i innsjøen.
 
 ##
-Da det ble mørkt, gikk de tilbake til huset for å spise middag. Før de ble ferdige med å spise begynte de å sovne!
+Da det ble mørkt, gikk de tilbake til huset for å spise middag. Før de ble ferdige med å spise begynte de å falle i søvn!
 
 ##
 Dagen etter kjørte faren deres tilbake til byen og lot dem bli igjen hos Nyar-Kanyada.

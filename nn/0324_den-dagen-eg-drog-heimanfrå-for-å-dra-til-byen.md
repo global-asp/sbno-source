@@ -1,7 +1,7 @@
 # Den dagen eg drog heimanfrå for å dra til byen
 
 ##
-Den vesle busstasjonen i landsbyen min var travel og stappfull av busser. På bakken var det fleire ting som skulle lastast. Medhjelparane ropte namna på stadane dit kor bussane gjekk.
+Den vesle busstasjonen i landsbyen min var travel og stappfull av bussar. På bakken var det fleire ting som skulle lastast. Medhjelparane ropte namna på stadane dit bussane gjekk.
 
 ##
 "Byen! Byen! Vestover!" høyrde eg ein medhjelpar ropa. Det var bussen eg måtte ta.
@@ -22,7 +22,7 @@ Eg såg ut av bussen og innsåg at eg var i ferd med å forlata landsbyen min, s
 Lastinga av bagasjen var ferdig og alle passasjerane hadde sett seg. Gateseljarar pressa seg enno inn i bussen for å selja varene sine til passasjerane. Alle ropte namna på det dei hadde til sals. Eg syntest orda høyrdest merkelege ut.
 
 ##
-Nokre få passasjerar kjøpte noko å drikka, andre kjøpte små snacks som dei byrja å tygga på. Dei som ikkje hadde noko pengar, som eg, berre såg på.
+Nokre få passasjerar kjøpte noko å drikka, andre kjøpte små snacks som dei byrja å tygga på. Dei som ikkje hadde nokre pengar, som eg, berre såg på.
 
 ##
 Desse aktivitetane vart avbrotne av tutinga til bussen, eit teikn på at vi var klare til å dra. Ein medhjelpar ropte at gateseljarane måtte koma seg ut.
@@ -31,7 +31,7 @@ Desse aktivitetane vart avbrotne av tutinga til bussen, eit teikn på at vi var 
 Gateseljarar dytta kvarandre for å koma seg ut av bussen. Nokre gav tilbake vekslepengar til dei reisande. Andre freista i siste liten å selja nokre fleire varer.
 
 ##
-Idet bussen forlét busstasjonen, stira eg ut av vindauget. Eg lurte på om eg nokosinne skulle koma tilbake til landsbyen min igjen.
+I det bussen forlét busstasjonen, stira eg ut av vindauget. Eg lurte på om eg nokosinne skulle koma tilbake til landsbyen min igjen.
 
 ##
 Etter kvart som reisa heldt fram vart det veldig varmt i bussen. Eg lukka auga og håpte å få sova.
@@ -40,13 +40,13 @@ Etter kvart som reisa heldt fram vart det veldig varmt i bussen. Eg lukka auga o
 Men tankane mine vandra heim. Kjem mor mi til å verta trygg? Kjem kaninane mine til å innbringe nokre pengar? Kjem bror min til å hugsa å vatna dei nyutsprungne trea mine?
 
 ##
-På vegen lærte eg meg utanåt namnet på staden i den store byen der onkel min budde. Eg mumla enno då eg fall i søvn.
+På vegen lærte eg meg utanåt namnet på staden i den store byen der onkelen min budde. Eg mumla enno då eg fall i søvn.
 
 ##
-Ni timar seinare vakna eg med høglydt banking og roping etter passasjerar som skulle tilbake til landsbyen min. Eg greip fatt i den vesle veska mi og hoppa ut av bussen.
+Ni timar seinare vakna eg av høglydt banking og roping etter passasjerar som skulle tilbake til landsbyen min. Eg greip fatt i den vesle veska mi og hoppa ut av bussen.
 
 ##
-Bussen som skulle tilbake vart fylt opp fort. Det viktigaste for meg no var å byrja å leita etter huset til onkel min.
+Bussen som skulle tilbake vart fylt opp fort. Det viktigaste for meg no var å byrja å leita etter huset til onkelen min.
 
 ##
 * License: [CC-BY]
